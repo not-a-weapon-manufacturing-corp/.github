@@ -1,5 +1,8 @@
 ## Hi there 👋
 
+We are a group that came togeather to build stuff!!!
+SMASH LIKE IF YOU LIKE BUILDING STUFF 👍
+
 <!--
 
 **Here are some ideas to get you started:**
